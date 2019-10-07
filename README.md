@@ -1,4 +1,4 @@
-# Idaho Kannada Sangha (IKS) 
+Idaho Kannada Sangha (IKS) ...
 Bringing together the Kannada-speaking population residing in the state of Idaho (USA)
 
 
